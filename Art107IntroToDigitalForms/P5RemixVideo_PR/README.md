@@ -7,3 +7,6 @@ To creatively use found footage to create a compelling video remix.
 
 My Idea on this Project:
 I choose three videos of Chinese e-sport players from LOL, PUBG and CSGO and added a Travis Scott like bam and bass to highlight moments
+
+The Link to the video:
+https://youtu.be/Haf62zIr9Xw
